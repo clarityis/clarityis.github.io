@@ -1,3 +1,0 @@
-# clarityis.github.io
-
-Hi
